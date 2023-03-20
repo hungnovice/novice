@@ -1,0 +1,2 @@
+# novice
+Ập bây ủa
